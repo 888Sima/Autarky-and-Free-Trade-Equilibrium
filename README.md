@@ -1,0 +1,1 @@
+# Autarky-and-Free-Trade-Equilibrium
